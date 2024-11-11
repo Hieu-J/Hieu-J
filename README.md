@@ -2,7 +2,7 @@
 - 👀 I’m interested in computer network, web structure, application design
 - 🌱 I am currently studying first year of information technology
 - 💞️ I’m looking to collaborate on online
-- 📫 contact me via email: nene030805@gmail.com
+- 📫 contact me via email: hieutrung030805@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
